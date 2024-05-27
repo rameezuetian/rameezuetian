@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Ehsas Lab learning something new.
 - 📫 How to reach me muhammadrameez262@gmail.com
 - 😄 Pronouns: Coder
-- ⚡ Fun fact: humorous
+- ⚡ Fun fact: Philosopher 
 
 <!---
 rameezuetian/rameezuetian is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
